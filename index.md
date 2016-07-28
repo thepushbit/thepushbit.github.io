@@ -31,8 +31,6 @@ An infographic says a thousand words. See what expresses the most.
 * [Github /harshjv](https://github.com/harshjv)
 * [LinkedIn "Harsh Vakharia"](https://in.linkedin.com/in/harshjv)
 
-&amp;
-
 ### Tarun Vaghasiya
 
 * [LinkedIn "Tarun Vaghasiya"](https://in.linkedin.com/in/tarunhv)
